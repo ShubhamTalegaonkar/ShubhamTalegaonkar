@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 Mobile Number - 8888821406
-Email - Shubham.talegaonkar@vernost.in
+Email - Shubham.talegaonkar1996@gmail.com
 <!---
 ShubhamTalegaonkar/ShubhamTalegaonkar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
